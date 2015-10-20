@@ -1,4 +1,5 @@
-### **Jillian Boshart, CPC-A** <br/>Seattle, WA  | 206-643-2283 | Jillian.Boshart@gmail.com
+### **Jillian Boshart, CPC-A**
+Seattle, WA  | 206-643-2283 | Jillian.Boshart@gmail.com
 
 I am a Certified Professional Medical Coder with five years' experience in a medical billing setting seeking a transition into Software Development wherein I can meaningfully use my skills to serve my community. 
 

@@ -3,8 +3,8 @@
 I am a Certified Professional Medical Coder with five years' experience in a medical billing setting seeking a transition into Software Development wherein I can meaningfully use my skills to serve my community. 
 
 #### **Professional Experience:**
-[**Physicians Anesthesia Service (July 2010-present)**](http://pasanes.com)
-**Certified Professional Coder, Billing Specialist**
+[**Physicians Anesthesia Service (July 2010-present)**](http://pasanes.com)  
+**Certified Professional Coder, Billing Specialist**  
 **Medical coding and billing, project management, communication, schedule management**
 
  - Project management and documentation of complex and delicate cases requiring extensive follow up and communication between doctors, patients, and insurance companies.
@@ -15,9 +15,9 @@ I am a Certified Professional Medical Coder with five years' experience in a med
  - Maintain, edit, and operate scheduling software, educating a large practice of doctors on its functionality and usage to promote practice cohesion.
  - Quickly and accurately code a high volume of medical cases to the highest level of specificity, ensuring compliance with national standards. 
 
-[**Songbird & Raven**](https://www.facebook.com/songbirdandraven)
-**Producer, Artistic Director (various theater and cabaret projects, 2004-present)**
-**Event coordination, theater production management, budget tracking and accounting, marketing**
+[**Songbird & Raven**](https://www.facebook.com/songbirdandraven)  
+**Producer, Artistic Director (various theater and cabaret projects, 2004-present)**  
+**Event coordination, theater production management, budget tracking and accounting, marketing**  
 
   - Estimate production costs, establish and track budgets for individual production runs and for the company as a whole.
   - Establish a production calendar, schedule and coordinate rehearsals, venues, and estimate staffing needs.
@@ -26,9 +26,9 @@ I am a Certified Professional Medical Coder with five years' experience in a med
   - Hire and manage local talent, keeping the crew and cast informed and organized.
   - Team up with local charities to cultivate a mutually beneficial system of support for both the cause and the event.
 
-[**T-Scan Corporation (March 2009-July 2010)**](http://www.tscan.biz/)
-**Assistant Account Specialist**
-**Project management, writing, editing, research, customer support**
+[**T-Scan Corporation (March 2009-July 2010)**](http://www.tscan.biz/)  
+**Assistant Account Specialist**  
+**Project management, writing, editing, research, customer support**  
 
  - Acted as team manager, triaged projects by deadline and level of importance, delegating project tasks and assisting team members with difficulties.
  - Communicate directly with clients (law firms) to meet all of their records retrieval needs, and ensure all expectations were met.

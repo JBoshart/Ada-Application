@@ -12,9 +12,9 @@ I am a Certified Professional Medical Coder with five years' experience in a med
 - Maintain, edit, and operate scheduling software, educating a large practice of doctors on its functionality and usage in order to promote practice cohesion. 
 - Project manage and document complex and delicate cases requiring extensive follow up and communication between doctors, patients, and insurance companies.
 - Strictly monitor payments from both patients and insurance providers to make sure they are received, documented, and deposited correctly. 
- - Act as a friendly and effective liaison between practice and insurance companies to ensure correct and timely payment. 
- - Educate laypersons (patients) about medical insurance benefits and eligibility, empowering them to make informed choices about their healthcare.
- - Manage schedules to ensure balanced workloads across the practice, prevent doctor burn out, and maintain rules for hours worked to safeguard patients' welfare.
+- Act as a friendly and effective liaison between practice and insurance companies to ensure correct and timely payment. 
+- Educate laypersons (patients) about medical insurance benefits and eligibility, empowering them to make informed choices about their healthcare.
+- Manage schedules to ensure balanced workloads across the practice, prevent doctor burn out, and maintain rules for hours worked to safeguard patients' welfare.
 
 [**Songbird & Raven**](https://www.facebook.com/songbirdandraven) **(2014-present)**  
 **Producer, Artistic Director**  
